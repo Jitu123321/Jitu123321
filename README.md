@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c language
 - 💞️ I’m looking to collaborate on Bgmi hack
 - 📫 How to reach me instagram - @Jitu.Its97
-- 😄 Pronouns: JIYU
+- 😄 Pronouns: JITU
 - ⚡ Fun fact:SINGLE
 
 <!---
